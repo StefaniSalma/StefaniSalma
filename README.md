@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @StefaniSalma
+- 👀 I’m interested in mental health issues
+- 🌱 I’m currently learning at Universitas islam bandung.
+- 📫 How to reach me Stefani21062001@gmail.com
